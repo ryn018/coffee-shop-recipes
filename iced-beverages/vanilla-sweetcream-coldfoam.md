@@ -5,7 +5,7 @@
 ## Ingredients
 
 - 8 oz cold Brew
-- 1/4 cup of 2% milk
+- 1/4 cup of 2% milk and cream
 - 1 Tbsp powdered sugar
 - 1/4 tsp vanilla extract
 - Ice
