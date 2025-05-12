@@ -25,4 +25,5 @@
 
 - Pour blended mixture into 16-oz glass.
 
-
+### Step 4
+- Top with whipped cream and choclate shavings
